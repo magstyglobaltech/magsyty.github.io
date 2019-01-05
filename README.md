@@ -1,0 +1,1 @@
+# magsyty.github.io
